@@ -27,7 +27,7 @@ I’m a 10th grader passionate about Linux, customizing my system (ricing 🍚),
 ---
 
 ## 📫 Let's Connect!   
-- **Twitter**: https://x.com/666_srrr  
+- **Twitter**: https://x.com/s4rthx0  
 - **Email**: sarthakbaranwal09@proton.me
 
 ---
